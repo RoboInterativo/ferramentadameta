@@ -1,1 +1,0 @@
-# ferramentadameta.github.io
